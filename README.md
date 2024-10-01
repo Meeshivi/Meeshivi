@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Meeshivi
 - 👀 I’m interested in socialism 
-- 🌱 I’m currently learning phicology 
+- 🌱 I’m currently learning people's 
 - 💞️ I’m looking to collaborate on social media with good brand 
 - 📫 How to reach me sona0207sharma@gmail.com
 - 😄 Pronouns: ...
